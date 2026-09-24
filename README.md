@@ -1,16 +1,16 @@
-## Hi there 👋
+HELLO MY DARLINGS! ✨
 
-<!--
-**mettaton-10zj/mettaton-10zj** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img width="609" height="266" alt="IMG_5713" src="https://github.com/user-attachments/assets/db5a20aa-fb97-4142-bb5c-9a23b10a171a" />
 
-Here are some ideas to get you started:
+＊┈┈┈┈＊┈┈┈┈＊┈┈┈┈*
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+rude in general / non speakin’ English dni
+
+★Im a minor hi,,, (12)
+mostly offtab srry for not resp/late resp!!
+
+<img width="2560" height="1810" alt="1K3A1SM07_BSVSCT" src="https://github.com/user-attachments/assets/6d55a780-aecf-417c-8ee3-cca6d0ab5572" />
+
+
+
+｡･:*:･ﾟ★,｡･:*:･ﾟ☆
